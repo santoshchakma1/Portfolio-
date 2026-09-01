@@ -1,2 +1,2 @@
 # My-Portfolio-
-About my profile in details.
+About Myself in Details.
